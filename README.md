@@ -1,0 +1,2 @@
+# wedus
+Baru belajar
